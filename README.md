@@ -1,1 +1,0 @@
-# cpt-friday.github.io
